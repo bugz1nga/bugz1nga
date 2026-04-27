@@ -1,6 +1,6 @@
 <p align="center">
-${{\color{#FFFFD4}\text{dewey⠀⠀　he⠀,⠀they⠀⠀　18yrs}}}$<br>
-${{\color{#FFFFD4}\text{infp⠀　sp6⠀　bi + aroace flux}}}$<br>
+${{\color{#FFFFD4}\text{d͟e͟wey⠀⠀　he ／ they⠀⠀　18yrs}}}$<br>
+${{\color{#FFFFD4}\text{infp⠀　sp6⠀　bi + aro𝗮𝗰𝗲 flux}}}$<br>
 ${{\color{#8F8F8F}\text{‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿}}}$<br>
 <p align="center"><img src="https://64.media.tumblr.com/7354d644487ac9ee659d09c5a5247b18/f3c26a82aad621fc-b5/s1280x1920/d2ac6a60c79ac40e0b859a36be32247390976f32.jpg"height="210px" />
 <p align="center">

@@ -1,8 +1,7 @@
 <p align="center">
-${{\color{#FFFFD4}\text{d͟e͟wey⠀⠀　he ／ they⠀⠀　18yrs}}}$<br>
-${{\color{#FFFFD4}\text{infp⠀　sp6⠀　bi + aro𝗮𝗰𝗲 flux}}}$<br>
-${{\color{#8F8F8F}\text{‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿}}}$<br>
-<p align="center"><img src="https://64.media.tumblr.com/7354d644487ac9ee659d09c5a5247b18/f3c26a82aad621fc-b5/s1280x1920/d2ac6a60c79ac40e0b859a36be32247390976f32.jpg"height="210px" />
+<h3 align="center"><img align="center" src="https://64.media.tumblr.com/9635d358d761be67b5c732dd428705f3/c9d0a1e750bc5e94-cd/s2048x3072/3bf011289a0dba4744201cba7131243c852e9d30.pnj" height="22px" alt="divider"/>
+<p align="center" dir="auto"><a target="_blank" rel="mp100" href=><img src="https://66.media.tumblr.com/77a9986a7149d48c3e918e05cdfe745c/tumblr_pn7cpbEbOk1sk0j97o2_500.gif" style="max-width: 100%;">
 <p align="center">
-  <a href= "https://github.com/nightmareofy0u">silly girl</a>⠀⠀⟡⠀⠀<a href= "https://github.com/slendersickness">chud boy</a>
-<p align="center"><img src="https://64.media.tumblr.com/bc9589ce8dca0dd77cac9f9c50557779/cc73e34cd92597b9-bd/s1280x1920/cf482e12746e75a8f31d0b3bebc46dfe43eb85d7.pnj"height="150px" />
+${{\color{#dbdcdd}\text{d͟e͟wey⠀⠀　he ／ they⠀⠀　⠀⠀𓏵⠀⠀⠀　⠀18yrs⠀⠀　infp⠀⠀　sp6}}}$<br>
+<p align="center">
+<h3 align="center"><img align="center" src="https://64.media.tumblr.com/77ead84af42b5fab8a049c5ef5650ab6/c9d0a1e750bc5e94-fb/s2048x3072/623a83d05c7747e3dac57844fedd0ee3413a1f2b.pnj" height="22px" alt="divider"/>

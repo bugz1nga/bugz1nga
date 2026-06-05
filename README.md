@@ -1,5 +1,7 @@
 <p align="center">
 ${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
+${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
+${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
 
 <p align="center">
 <h3 align="center"><img align="center" src="https://64.media.tumblr.com/9635d358d761be67b5c732dd428705f3/c9d0a1e750bc5e94-cd/s2048x3072/3bf011289a0dba4744201cba7131243c852e9d30.pnj" height="20px" alt="divider"/>
@@ -10,5 +12,6 @@ ${{\color{#dbdcdd}\text{❀⠀　multi fandom .ᐟ⠀﹒　i lav bunnies :3⠀�
   <h3 align="center"><img align="center" src="https://64.media.tumblr.com/77ead84af42b5fab8a049c5ef5650ab6/c9d0a1e750bc5e94-fb/s2048x3072/623a83d05c7747e3dac57844fedd0ee3413a1f2b.pnj" height="20px" alt="divider"/>
 
 <p align="center">
+${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
 ${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
 ${{\color{#dbdcdd}\text{⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　}}}$<br>
